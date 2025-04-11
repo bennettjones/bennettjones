@@ -34,5 +34,3 @@ Here are some key points about Bennett Jones:
 ### 7. **Leadership**
    - The firm's leadership is composed of highly experienced legal professionals who have been instrumental in shaping its strategic direction.
    - The firm has consistently evolved with the changing legal landscape, maintaining its status as a top player in the Canadian legal market.
-
-Would you like more specific information about any of these areas, or perhaps about their involvement in certain industries or recent major cases?
